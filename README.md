@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Whoserica
-- 👀 I’m interested in nsfw
+- 👀 I’m interested in romance
 - 🌱 I’m currently learning business 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
